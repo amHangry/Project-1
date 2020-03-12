@@ -1,3 +1,3 @@
 Kornravknsdvk
 print("Prair")
-Kuy Boom
+Fuck off boom
